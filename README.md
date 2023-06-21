@@ -10,6 +10,6 @@
 - 🐣 I’m currently studying Computer Applications at Hamk 
 - ✨ Coding is my passion 
 - 👥 Feel free to check my LinkedIn here: https://www.linkedin.com/in/saida-essadiki/
-- 📫 Feel free to contact me via email: saida.essadiki1997@gmail.com
+- 📫 Feel free to contact me via email: saida.essadiki9@gmail.com
 
 
