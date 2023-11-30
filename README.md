@@ -7,7 +7,7 @@
 
 
 - 🧚🏻‍♀️ I’m Saida  
-- 🐣 I’m currently studying Computer Applications at Hamk 
+- 🐣 I’m a Computer Applications recent graduate 
 - ✨ Coding is my passion 
 - 👥 Feel free to check my LinkedIn here: https://www.linkedin.com/in/saida-essadiki/
 - 📫 Feel free to contact me via email: saida.essadiki9@gmail.com
