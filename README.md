@@ -11,5 +11,5 @@
 - ✨ Coding is my passion 
 - 👥 Feel free to check my LinkedIn here: https://www.linkedin.com/in/saida-essadiki/
 - 📫 Feel free to contact me via email: saida.essadiki9@gmail.com
-
+<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=saida-essadiki" alt="saida-essadiki" /></p>
 
